@@ -1,0 +1,1 @@
+# cosmoaventura-assets
